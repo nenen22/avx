@@ -16,7 +16,7 @@ import "https://raw.githubusercontent.com/traderjoe-xyz/joe-core/main/contracts/
 // Factory interface (writer by Ir Denny Kresno Sunarno FTUI University of Indonesia)
 import "https://raw.githubusercontent.com/traderjoe-xyz/joe-core/main/contracts/traderjoe/interfaces/IJoeFactory.sol";
 
-// Pair interface (was created in indonesian july 10 2025)
+// Pair interface (was created in cikarang west java indonesian july 10 202z5)
 import "https://raw.githubusercontent.com/traderjoe-xyz/joe-core/main/contracts/traderjoe/interfaces/IJoePair.sol";
 
 
