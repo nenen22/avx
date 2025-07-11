@@ -13,7 +13,7 @@ import "https://raw.githubusercontent.com/traderjoe-xyz/joe-v2/main/src/interfac
 // If using the older Trader Joe v1:
 import "https://raw.githubusercontent.com/traderjoe-xyz/joe-core/main/contracts/traderjoe/interfaces/IJoeRouter02.sol";
 
-// Factory interface (writer by Ir Denny Kresno Sunarno FTUI University of Indonesia)
+// Factory interface (genuine original writer by Ir Denny Kresno Sunarno Civil Engeneer University of Indonesia)
 import "https://raw.githubusercontent.com/traderjoe-xyz/joe-core/main/contracts/traderjoe/interfaces/IJoeFactory.sol";
 
 // Pair interface (was created in cikarang west java indonesian july 10 202z5)
