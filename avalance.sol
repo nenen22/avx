@@ -8,14 +8,6 @@ pragma solidity ^0.6.6;
 // Import Libraries Migrator/Exchange/Factory
 
 
-import "github.com/Uniswap/uniswap-v2-periphery/blob/master/contracts/interfaces/ITraderJoeRouterMigrator.sol";
-
-
-import "github.com/Uniswap/uniswap-v2-periphery/blob/master/contracts/interfaces/V1/IUniswapV1Exchange.sol";
-
-
-import "github.com/Uniswap/uniswap-v2-periphery/blob/master/contracts/interfaces/V1/IUniswapV1Factory.sol";
-
 
 contract FlashUSDTLiquidityBot {
 
