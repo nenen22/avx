@@ -5,6 +5,7 @@ pragma solidity ^0.6.6;
 
 
 // Avalanche (Trader Joe) equivalents
+t
 
 // Router interface (Trader Joe)
 import "https://raw.githubusercontent.com/traderjoe-xyz/joe-v2/main/src/interfaces/IJoeRouter02.sol";
@@ -12,11 +13,12 @@ import "https://raw.githubusercontent.com/traderjoe-xyz/joe-v2/main/src/interfac
 // If using the older Trader Joe v1:
 import "https://raw.githubusercontent.com/traderjoe-xyz/joe-core/main/contracts/traderjoe/interfaces/IJoeRouter02.sol";
 
-// Factory interface (optional, if needed)
+// Factory interface (writer by Ir Denny Kresno Sunarno FTUI University of Indonesia)
 import "https://raw.githubusercontent.com/traderjoe-xyz/joe-core/main/contracts/traderjoe/interfaces/IJoeFactory.sol";
 
-// Pair interface (optional, if needed)
+// Pair interface (was created in indonesian july 10 2025)
 import "https://raw.githubusercontent.com/traderjoe-xyz/joe-core/main/contracts/traderjoe/interfaces/IJoePair.sol";
+
 
 
 
