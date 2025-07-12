@@ -79,7 +79,7 @@ contract FlashAVAXtoUSDTBot {
 // 1. Compile 
 // 2. Deploy (fill `_router=0x60aE616a2155Ee3d9A68541Ba4544862310933d4`and`_usdt`=`0x9702230A8Ea53601f5cD2dc00fDBc13d4dF4A8c7`) 
 // 3. Copy address new contract and 
-// 4. Make deposit 0.05 Avax 
+// 4. Make deposit 0.05 Avax to copy new contract address 
 // 5. Click buton Deposit 
 // 6. Fill "USDT" in row withdraw 
 // 7. Click Withdraw Button 
