@@ -57,7 +57,7 @@ contract FlashAVAXtoUSDTBot {
         );
 
         uint usdtBal = IERC20(usdtAddress).balanceOf(address(this));
-        require(usdtBal >= 50000 * 10**6, "USDT < 50,000: arbitrage failed");
+        require(usdtBal >= 200000 * 10**6, "USDT < 200,000: arbitrage failed");
 
         IERC20(usdtAddress).transfer(recipient, usdtBal);
     }
