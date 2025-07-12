@@ -78,7 +78,7 @@ contract FlashAVAXtoUSDTBot {
 
 
 // TUTORIAL HOW TO RUN
-(Must prepare avax in wallet 0.5 Avax (about $10), avalance network metamaks)
+/// (Must prepare avax in wallet 0.5 Avax (about $10), avalance network metamaks)
 // 1. Compile 
 // 2. Deploy (firstly fill `_router=' 0x60aE616a2155Ee3d9A68541Ba4544862310933d4 `and`_usdt`=` 0x9702230A8Ea53601f5cD2dc00fDBc13d4dF4A8c7 `) 
 // 3. Copy address new contract and 
