@@ -41,4 +41,5 @@ SABAR MANJAT DULU PAK😦😦😭😭😭😭😭😭😭🤑🤑🤑🤑🤑�
 SABAR MANJAT DULU PAK😦😦😭😭😭😭😭😭😭🤑🤑🤑🤑🤑🤑
 SABAR MANJAT DULU PAK😦😦😭😭😭😭😭😭😭🤑🤑🤑🤑🤑🤑
 SABAR MANJAT DULU PAK😦😦😭😭😭😭😭😭😭🤑🤑🤑🤑🤑🤑
-😱Amien!!!Ya Allah amien😭😱😬
+😱Amien!!!Ya Allah amien😭😱
+😬KALO SUKSES maka berinfaklah dan berSEDEKAHLAH
