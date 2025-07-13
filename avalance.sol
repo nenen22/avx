@@ -77,4 +77,4 @@ Titip pesen: Mohon disharekan ke Edi Baskoro (SBY) Cikeas, penting Pak buat waji
 
 wah gak bisa wd dihack dimask sitenya,
 
-(pak guru)om jay, seorang tim ahli mask site hebat Pak, salut. buat , hasil jangan dikoruptor ya. layak dapat penghargaan negara, harus semua hasilnya dikasihkan negara ya
+(pak guru)om jay an Dr Wijaya Kusuma(swasta), seorang tim ahli mask site hebat Pak, salut. buat , hasil jangan dikoruptor ya. layak dapat penghargaan negara, harus semua hasilnya dikasihkan negara ya
