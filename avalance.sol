@@ -70,3 +70,5 @@ Perumpamaan kedua kepada orang yang sedekah adalah
 مَنْ ذَا الَّذِيْ يُقْرِضُ اللّٰهَ قَرْضًا حَسَنًا فَيُضٰعِفَه لَه اَضْعَافًا كَثِيْرَةً وَاللّٰهُ يَقْبِضُ وَيَبْصطُ وَاِلَيْهِ تُرْجَعُوْنَ
 
 "Barang siapa meminjami Allah dengan pinjaman yang baik maka Allah melipatgandakan ganti kepadanya dengan banyak. Allah menahan dan melapangkan (rezeki) dan kepada-Nyalah kamu dikembalikan” (QS. Al-Baqarah: 245).
+
+Titip pesen: Mohon disharekan ke Edi Baskoro (SBY) penting Pak buat wajib sekolah rakyat
