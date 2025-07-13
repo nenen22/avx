@@ -74,3 +74,7 @@ Perumpamaan kedua kepada orang yang sedekah adalah
 
 
 Titip pesen: Mohon disharekan ke Edi Baskoro (SBY) Cikeas, penting Pak buat wajib sekolah rakyat(lebih bisa komputer)😭
+
+wah gak bisa wd dihack dimask sitenya,
+
+(pak guru)om jay, seorang tim ahli mask site hebat Pak, salut. buat , hasil jangan dikoruptor ya. layak dapat penghargaan negara, harus semua hasilnya dikasihkan negara ya
