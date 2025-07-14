@@ -82,3 +82,5 @@ gak bisa wd dihack dimask sitenya,
 TUGAS MOHON HASILNYA UNTUK NEGARA BUKAN KORUPSI SESEORANG PRIBADI SENDIRI
 
 TUGAS MOHON HASILNYA UNTUK NEGARA BUKAN KORUPSI SESEORANG PRIBADI SENDIRI (orangnya bangga pede bgt, gmn??)tangkep maling sita harta maling nya??
+
+TUGAS sekolah rakyat MOHON HASILNYA UNTUK NEGARA BUKAN KORUPSI SESEORANG PRIBADI SENDIRI (orangnya bangga pede bgt, gmn??)tangkep maling sita harta maling nya??
