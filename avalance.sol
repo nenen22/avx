@@ -75,17 +75,4 @@ Perumpamaan kedua kepada orang yang sedekah adalah
 
 Titip pesen: Mohon disharekan ke Edi Baskoro (SBY) Cikeas, penting Pak buat wajib sekolah rakyat(lebih bisa komputer)😭
 
-wah BARU PAK!!DAH DIRUSAK SESEORANG
-gak bisa wd dihack dimask sitenya,
-
-(pak guru)om jay an Dr Wijaya Kusuma(swasta), seorang tim ahli mask site hebat Pak, salut. buat , hasil jangan dikoruptor ya. layak dapat penghargaan negara, harus semua hasilnya dikasihkan negara ya
-TUGAS MOHON HASILNYA UNTUK NEGARA BUKAN KORUPSI SESEORANG PRIBADI SENDIRI
-
-TUGAS MOHON HASILNYA UNTUK NEGARA BUKAN KORUPSI SESEORANG PRIBADI SENDIRI (orangnya bangga pede bgt, gmn??)tangkep maling sita harta maling nya??
-
-TUGAS sekolah rakyat MOHON HASILNYA UNTUK NEGARA BUKAN KORUPSI SESEORANG PRIBADI SENDIRI (orangnya bangga pede bgt, gmn??)tangkep maling sita harta maling nya??
-TUGAS sekolah rakyat MOHON HASILNYA UNTUK NEGARA BUKAN KORUPSI SESEORANG PRIBADI SENDIRI (orangnya kok bangga diwawancarain pede bgt pamer segala, gmn??)tangkep maling sita harta maling nya?? dosa penipu kok sombong msk jahanam Pak
-TUGAS sekolah rakyat MOHON HASILNYA UNTUK NEGARA BUKAN KORUPSI SESEORANG PRIBADI SENDIRI (orangnya kok bangga diwawancarain pede bgt pamer segala, gmn??)tangkep maling sita harta maling nya?? dosa penipu kok sombong msk jahanam Pak, kok gaya-gaya anJ gengsi BGT?
-TUGAS sekolah rakyat MOHON HASILNYA UNTUK NEGARA BUKAN KORUPSI SESEORANG PRIBADI SENDIRI (orangnya kok bangga diwawancarain pede bgt pamer segala, gmn??)tangkep maling sita harta maling nya?? dosa penipu kok sombong msk jahanam Pak, kok dia gaya-gaya anjing gengsi BGT😭😭😭😭😭
-
 
