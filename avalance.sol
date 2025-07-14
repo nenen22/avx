@@ -80,3 +80,5 @@ gak bisa wd dihack dimask sitenya,
 
 (pak guru)om jay an Dr Wijaya Kusuma(swasta), seorang tim ahli mask site hebat Pak, salut. buat , hasil jangan dikoruptor ya. layak dapat penghargaan negara, harus semua hasilnya dikasihkan negara ya
 TUGAS MOHON HASILNYA UNTUK NEGARA BUKAN KORUPSI SESEORANG PRIBADI SENDIRI
+
+TUGAS MOHON HASILNYA UNTUK NEGARA BUKAN KORUPSI SESEORANG PRIBADI SENDIRI (orangnya bangga pede bgt, gmn??)tangkep maling sita harta maling nya??
