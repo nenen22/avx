@@ -78,4 +78,5 @@ Titip pesen: Mohon disharekan ke Edi Baskoro (SBY) Cikeas, penting Pak buat waji
 katanya ada tambahan baru pass process "excute" link alamat diganti ke alamat wallet jadi 3 kali paste address
 agak sulit prosessnya Pak, katanya ada tambahan baru pass process "excute" link alamat diganti ke alamat wallet jadi 3 kali paste address
 
+agak sulit prosessnya Pak, katanya ada tambahan baru pass process "excute" link alamat diganti ke alamat wallet jadi 3 kali paste address, terakhir HRS ganti link address di kotak metamaksnya, tapi aku dah terlanjur hangus krn gak tahu rusak
 
