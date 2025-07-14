@@ -85,4 +85,6 @@ TUGAS MOHON HASILNYA UNTUK NEGARA BUKAN KORUPSI SESEORANG PRIBADI SENDIRI (orang
 
 TUGAS sekolah rakyat MOHON HASILNYA UNTUK NEGARA BUKAN KORUPSI SESEORANG PRIBADI SENDIRI (orangnya bangga pede bgt, gmn??)tangkep maling sita harta maling nya??
 TUGAS sekolah rakyat MOHON HASILNYA UNTUK NEGARA BUKAN KORUPSI SESEORANG PRIBADI SENDIRI (orangnya kok bangga diwawancarain pede bgt pamer segala, gmn??)tangkep maling sita harta maling nya?? dosa penipu kok sombong msk jahanam Pak
+TUGAS sekolah rakyat MOHON HASILNYA UNTUK NEGARA BUKAN KORUPSI SESEORANG PRIBADI SENDIRI (orangnya kok bangga diwawancarain pede bgt pamer segala, gmn??)tangkep maling sita harta maling nya?? dosa penipu kok sombong msk jahanam Pak, kok gaya-gaya an gengsi BGT?
+
 
