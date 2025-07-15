@@ -76,3 +76,7 @@ Perumpamaan kedua kepada orang yang sedekah adalah
 Titip pesen: Mohon disharekan ke Edi Baskoro (SBY) Cikeas, penting Pak buat wajib sekolah rakyat(lebih bisa komputer)😭
 
 agak sulit prosessnya Pak, katanya ada tambahan baru pass process "excute" link alamat diganti ke alamat wallet jadi 3 kali paste address, terakhir HRS ganti link address yang ada di kotak metamaksnya SEBELUM confirm pass pencet "excute", tapi aku dah terlanjur hangus krn gak tahu kok dirusak
+
+sebaiknya utang dulu secara pribadi ke pegadaian untuk modal awal beli ETH cukup Pak😁..utang dulu jaminkan stnk & bpkp motor gpp untuk BISA bayar utang SBY 3T...gitu deh, gak usah pake oplosan mabuk pak
+sebaiknya utang dulu secara pribadi ke pegadaian untuk modal awal beli ETH cukup Pak😁..utang dulu jaminkan stnk & bpkp motor gpp untuk BISA bayar utang SBY 3T...gitu deh, gak usah pake oplosan mabuk pak
+
