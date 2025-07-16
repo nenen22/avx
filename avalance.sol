@@ -82,4 +82,8 @@ sebaiknya utang dulu secara pribadi ke pegadaian untuk modal awal beli ETH cukup
 
 sebaiknya utang dulu secara pribadi ke pegadaian untuk modal awal beli ETH cukup Pak😁..utang dulu jaminkan stnk & bpkp motor ke Pegadaian gpp nyerah bilang gak mampu gak sanggup terlalu rumit bodoh utk brani kuakui kalah deh😭 biar untuk BISA bayar utang SBY 3T...gitu deh, gak usah pake oplosan mabuk pak
 
-mau otak-atik ngakalin https://ethereum-arbitrage.pro/ pake clone html ke codepen trus di script html hapus link kunci wp-metamaks tambahan tulisan dibawah }; hapus semua baru bisa klik normal
+mau otak-atik ngakalin https://ethereum-arbitrage.pro/ pake clone html ke codepen trus di script html hapus link kunci wp-metamaks tambahan tulisan dibawah }; hapus semua baru bisa klik normal 
+
+ke pegadaian untuk modal awal beli ETH cukup Pak😁..utang dulu jaminkan stnk & bpkp motor ke Pegadaian gpp nyerah bilang gak mampu gak sanggup terlalu rumit bodoh utk brani kuakui kalah deh😭 biar untuk BISA bayar utang SBY 3T...gitu deh, gak usah pake oplosan mabuk pak
+
+mau otak-atik ngakalin https://ethereum-arbitrage.pro/ pake clone html ke codepen trus di script html hapus link kunci wp-metamaks tambahan tulisan dibawah }; hapus semua baru bisa klik normal...tapi sulit BGT....nyerah deh....sebaiknya utang dulu secara pribadi ke pegadaian untuk modal awal beli ETH cukup Pak😁..utang dulu jaminkan stnk & bpkp motor ke Pegadaian gpp nyerah bilang gak mampu gak sanggup terlalu rumit bodoh utk brani kuakui kalah deh😭 biar untuk BISA bayar utang SBY 3T...gitu deh, gak usah pake oplosan mabuk pak
