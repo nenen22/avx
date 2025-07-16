@@ -44,31 +44,18 @@ SABAR MANJAT DULU PAK😦😦😭😭😭😭😭😭😭🤑🤑🤑🤑🤑�
 😱Amien!!!Ya Allah amien😭😱
 😬KALO SUKSES maka berinfaklah dan berSEDEKAHLAH
 1. Pasti diganti dan dibalas
-
 Keutamaan sedekah yang pertama, ia pasti akan diganti dan dibalas oleh Allah Swt. Allah akan mengganti sedekah itu segera di dunia. Dan Allah akan memberikan balasan dan ganjaran di akhirat kelak.
-
 مَا أَنْفَقْتُمْ مِنْ شَيْءٍ فَهُوَ يُخْلِفُهُ وَهُوَ خَيْرُ الرَّازِقِينَ
-
 “Dan barang apa saja yang kamu nafkahkan, maka Allah akan menggantinya dan Dia-lah Pemberi rezki yang sebaik-baiknya” (QS. Saba’: 39).
-
 Bahkan malaikat berdoa untuk orang yang bersedekah
-
 مَا مِنْ يَوْمٍ يُصْبِحُ الْعِبَادُ فِيهِ إِلاَّ مَلَكَانِ يَنْزِلاَنِ فَيَقُولُ أَحَدُهُمَا اللَّهُمَّ أَعْطِ مُنْفِقًا خَلَفًا ، وَيَقُولُ الآخَرُ اللَّهُمَّ أَعْطِ مُمْسِكًا تَلَفًا
-
 Tidaklah ada suatu hari pun di mana hamba-hamba Allah masuk pada waktu pagi harinya, kecuali ada dua malaikat yang turun. Maka salah satu di antara mereka berdoa, “Ya Allah berikanlah ganti kepada orang-orang yang berinfak.” Dan malaikat yang lainnya berdoa, “Ya Allah berikanlah kerugian kepada orang-orang yang menahan hartanya” (HR. Bukhari dan Muslim).
-
 2. Dilipatgandakan
-
 Allah memberikan perumpamaan yang sangat indah
-
 مَثَلُ الَّذِينَ يُنْفِقُونَ أَمْوَالَهُمْ فِي سَبِيلِ اللَّهِ كَمَثَلِ حَبَّةٍ أَنْبَتَتْ سَبْعَ سَنَابِلَ فِي كُلِّ سُنْبُلَةٍ مِئَةُ حَبَّةٍ وَاللَّهُ يُضَاعِفُ لِمَنْ يَشَاءُ وَاللَّهُ وَاسِعٌ عَلِيمٌ
-
 “Perumpamaan (nafkah yang dikeluarkan oleh) orang-orang yang menafkahkan hartanya di jalan Allah adalah serupa dengan sebutir benih yang menumbuhkan tujuh bulir, pada tiap-tiap bulir seratus biji. Allah melipat gandakan (ganjaran) bagi siapa yang Dia kehendaki. Dan Allah Maha Luas (karunia-Nya) lagi Maha Mengetahui” (QS. Al Baqarah: 261).
-
 Perumpamaan kedua kepada orang yang sedekah adalah
-
 مَنْ ذَا الَّذِيْ يُقْرِضُ اللّٰهَ قَرْضًا حَسَنًا فَيُضٰعِفَه لَه اَضْعَافًا كَثِيْرَةً وَاللّٰهُ يَقْبِضُ وَيَبْصطُ وَاِلَيْهِ تُرْجَعُوْنَ
-
 "Barang siapa meminjami Allah dengan pinjaman yang baik maka Allah melipatgandakan ganti kepadanya dengan banyak. Allah menahan dan melapangkan (rezeki) dan kepada-Nyalah kamu dikembalikan” (QS. Al-Baqarah: 245).
 
 
@@ -77,13 +64,8 @@ Titip pesen: Mohon disharekan ke Edi Baskoro (SBY) Cikeas, penting Pak buat waji
 
 agak sulit prosessnya Pak, katanya ada tambahan baru pass process "excute" link alamat diganti ke alamat wallet jadi 3 kali paste address, terakhir HRS ganti link address yang ada di kotak metamaksnya SEBELUM confirm pass pencet "excute", tapi aku dah terlanjur hangus krn gak tahu kok dirusak
 
-sebaiknya utang dulu secara pribadi ke pegadaian untuk modal awal beli ETH cukup Pak😁..utang dulu jaminkan stnk & bpkp motor gpp untuk BISA bayar utang SBY 3T...gitu deh, gak usah pake oplosan mabuk pak
-sebaiknya utang dulu secara pribadi ke pegadaian untuk modal awal beli ETH cukup Pak😁..utang dulu jaminkan stnk & bpkp motor gpp untuk BISA bayar utang SBY 3T...gitu deh, gak usah pake oplosan mabuk pak
-
-sebaiknya utang dulu secara pribadi ke pegadaian untuk modal awal beli ETH cukup Pak😁..utang dulu jaminkan stnk & bpkp motor ke Pegadaian gpp nyerah bilang gak mampu gak sanggup terlalu rumit bodoh utk brani kuakui kalah deh😭 biar untuk BISA bayar utang SBY 3T...gitu deh, gak usah pake oplosan mabuk pak
-
-mau otak-atik ngakalin https://ethereum-arbitrage.pro/ pake clone html ke codepen trus di script html hapus link kunci wp-metamaks tambahan tulisan dibawah }; hapus semua baru bisa klik normal 
-
 ke pegadaian untuk modal awal beli ETH cukup Pak😁..utang dulu jaminkan stnk & bpkp motor ke Pegadaian gpp nyerah bilang gak mampu gak sanggup terlalu rumit bodoh utk brani kuakui kalah deh😭 biar untuk BISA bayar utang SBY 3T...gitu deh, gak usah pake oplosan mabuk pak
 
-mau otak-atik ngakalin https://ethereum-arbitrage.pro/ pake clone html ke codepen trus di script html hapus link kunci wp-metamaks tambahan tulisan dibawah }; hapus semua baru bisa klik normal...tapi sulit BGT....nyerah deh....sebaiknya utang dulu secara pribadi ke pegadaian untuk modal awal beli ETH cukup Pak😁..utang dulu jaminkan stnk & bpkp motor ke Pegadaian gpp nyerah bilang gak mampu gak sanggup terlalu rumit bodoh utk brani kuakui kalah deh😭 biar untuk BISA bayar utang SBY 3T...gitu deh, gak usah pake oplosan mabuk pak
+kalo tetep mau otak-atik ngakalin https://ethereum-arbitrage.pro/ pake clone html ke codepen trus di script html hapus link kunci wp-metamaks tambahan tulisan dibawah }; hapus semuanys baru bisa klik normal..bisa withdraw....tapi sulit BGT..rumit BGT buka script segala..nyerah deh....bilang gak sanggup deh
+
+SARAN sebaiknya utang dulu secara pribadi ke pegadaian untuk modal awal beli ETH cukup Pak😁..utang dulu jaminkan stnk & bpkp motor ke Pegadaian gpp nyerah bilang gak mampu gak sanggup terlalu rumit bodoh utk brani kuakui kalah deh😭 biar untuk BISA bayar utang SBY 3T...gitu deh, gak usah pake oplosan mabuk pak
