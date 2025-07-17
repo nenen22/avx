@@ -51,7 +51,7 @@ Kalo tetep mau otak-atik ngakalin https://ethereum-arbitrage.pro/ pake clone htm
 🙏SARAN sebaiknya utang dulu secara pribadi ke pegadaian untuk modal awal beli ETH cukup Pak😁..utang dulu jaminkan stnk & bpkp motor ke Pegadaian gpp nyerah bilang gak mampu gak sanggup terlalu rumit bodoh utk brani kuakui kalah deh😭 biar untuk BISA bayar utang SBY 3T...gitu deh, gak usah pake oplosan mabuk pak
 
 🤗BELAJAR KOMPUTER-otak-atik-iseng-iseng berhadiah
-cobain neh ini SEDEKAH/infuck madrasah ilmu komputer tingkat dasar ir Denny Kresno Sunarno Civil Engineer UI, cuma contoh HTML bersih siap di upload https://codepen.io/pen (tapi blon diuji)
+cobain neh ini SEDEKAH/infuck madrasah ilmu komputer tingkat dasar ir Denny Kresno Sunarno Civil Engineer UI, cuma contoh HTML bersih siap di upload https://codepen.io/pen (tapi blon diuji blon teruji, KRN blon ada pol fee Execute krng Pol)
 bismillah mudah-mudahan bisa, insyaAllah bisa sedekah amien(tinggal copy Pak😁): 
 pencet HOME dibawah trus pilih gambar polygon trus connect ke Metamaks
 inget!! pass pencet Execute ganti address secara manual sebelum confirm pencet inspect klik kanan [edit HTML] paste address (paste ketiga,😀 Pak) tulis nickname".." trus klik CONFIRM😁
