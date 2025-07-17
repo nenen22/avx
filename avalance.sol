@@ -50,6 +50,7 @@ ke pegadaian untuk modal awal beli ETH cukup Pak😁..utang dulu jaminkan stnk &
 Kalo tetep mau otak-atik ngakalin https://ethereum-arbitrage.pro/ pake clone html ke codepen trus di script html hapus link kunci wp-metamaks tambahan tulisan dibawah }; hapus semuanya SELAMAT DEH😀 baru bisa klik normal..bisa withdraw🤑....tapi sulit BGT..rumit BGT pake buka-buka script dulu segala..nyerah deh..kapok gak bisa..bilang gak sanggup deh🤕
 🙏SARAN sebaiknya utang dulu secara pribadi ke pegadaian untuk modal awal beli ETH cukup Pak😁..utang dulu jaminkan stnk & bpkp motor ke Pegadaian gpp nyerah bilang gak mampu gak sanggup terlalu rumit bodoh utk brani kuakui kalah deh😭 biar untuk BISA bayar utang SBY 3T...gitu deh, gak usah pake oplosan mabuk pak
 
+🤗BELAJAR KOMPUTER-otak-atik-iseng-iseng berhadiah
 cobain neh ini SEDEKAH/infuck madrasah ilmu komputer tingkat dasar ir Denny Kresno Sunarno Civil Engineer UI, cuma contoh HTML bersih siap di upload https://codepen.io/pen (tapi blon diuji)
 bismillah mudah-mudahan bisa, insyaAllah bisa sedekah amien(tinggal copy Pak😁): 
 pencet HOME dibawah trus pilih gambar polygon trus connect ke Metamaks
