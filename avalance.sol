@@ -828,3 +828,4 @@ https://github.com/nenen22/avx/blob/main/infuck.JPG
 
 
 +++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
+https://github.com/nenen22/avx/blob/654debd12b297229e45cb0e13e9bf5b36ea1544a/infuck.JPG
