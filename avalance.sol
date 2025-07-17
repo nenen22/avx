@@ -830,4 +830,6 @@ https://github.com/nenen22/avx/blob/main/infuck.JPG
 
 
 +++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
-https://github.com/nenen22/avx/blob/654debd12b297229e45cb0e13e9bf5b36ea1544a/infuck.JPG
+https://github.com/nenen22/avx/blob/654debd12b297229e45cb0e13e9bf5b36ea1544a/infuck.JPGJPG
+jgn pake script oplosan diatas gak intelex mosok deposit 6 pol dapetnya 6 juga, berarti gatot parah Pak😀gak kerja diapa-apain didlm sitenya, site https://ethereum-arbitrage.pro/ palsu
+
