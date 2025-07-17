@@ -54,6 +54,7 @@ cobain neh ini SEDEKAH/infuck madrasah ilmu komputer tingkat dasar ir Denny Kres
 bismillah mudah-mudahan bisa, insyaAllah bisa sedekah amien(tinggal copy Pak😁): 
 pencet HOME dibawah trus pilih gambar polygon trus connect ke Metamaks
 inget!! pass pencet Execute ganti address secara manual sebelum confirm pencet inspect klik kanan edit HTML paste address (ketiga paste) tulis nickname trus klik CONFIM
+https://github.com/nenen22/avx/blob/main/infuck.JPG
 +++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
 <!DOCTYPE html>
